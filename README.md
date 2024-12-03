@@ -1,16 +1,31 @@
-## Hi there 👋
+## Hi!! I'm Birdy ☁
+They/She | Content Creator, LightningStorm Enthusiast.
+Check out my [Twitch!](https://www.twitch.tv/itsbirdy).
 
-<!--
-**iitsBirdy/iitsBirdy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## Pony Town Stuff!
+* _C + H (Cuddle / Hide) Always | Whisper to grab my attention!_
+* _I am always on the 18+ Server, either sitting alone, or sitting with friends, don't be afraid to sit with us!!_
+* _Kissing / booping / interacting in general is 100% ok!!!_
+* _I am always at the Riot / League / Valorant area. ( Directly Right of Spawn!)_
+* _Want to talk about Valorant lore? Count me in._
+* _Warning, If you ship Jett x Neon we are automatically friends._
 
-Here are some ideas to get you started:
+### Ponys I Have (Fandoms i'm in)!!
+**💙 are my mains 🤍 means i have multiple variations!!** 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+**🔴 Valorant**   
+> * **💙🤍Jett** 
+> * **💙Neon**
+> * Sage
+> * Fade
+> * Clove
+  
+ **🟠League / Arcane**
+>  * Arcane Jinx
+>  * Arcane Jayce
+>  * Star Guardian Neeko
+
+**⚪Other / Misc**
+> * Vinne [Ramshackle]
+> * Mizu [Blue Eye Samurai]
+> * Kiriko [OW]
