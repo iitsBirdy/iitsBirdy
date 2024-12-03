@@ -10,8 +10,6 @@ Check out my [Twitch!](https://www.twitch.tv/itsbirdy).
 * _Want to talk about Valorant lore? Count me in._
 * _Warning, If you ship Jett x Neon we are automatically friends._
 
-![](https://github.com/https://github.com/iitsBirdy/iitsbirdygif)
-
 ### Ponys I Have (Fandoms i'm in)!!
 **💙 are my mains 🤍 means i have multiple variations!!** 
 
