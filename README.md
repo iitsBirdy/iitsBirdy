@@ -2,6 +2,8 @@
 They/She | Content Creator, LightningStorm Enthusiast.
 Check out my [Twitch!](https://www.twitch.tv/itsbirdy).
 
+![](https://github.com/iitsBirdy/iitsbirdygiftime/blob/main/IMG_2429.png)
+
 ## Pony Town Stuff!
 * _C + H (Cuddle / Hide) Always | Whisper to grab my attention!_
 * _I am always on the 18+ Server, either sitting alone, or sitting with friends, don't be afraid to sit with us!!_
